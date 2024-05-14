@@ -6,6 +6,8 @@ Live Demo - https://codelikeamachine.github.io/Day5of50-Fully-Responsive-Bussine
 
 Join me
 
+Linkedin - http://www.linkedin.com/in/armaansaraswat
+
 GitHub: https://github.com/Codelikeamachine
 
 Instagram - https://www.instagram.com/saraswat_armaan
